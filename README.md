@@ -3,6 +3,6 @@
 
 ---
 
-## Experiências:
+## Experiencias:
 
 - Aluno da Unimar
